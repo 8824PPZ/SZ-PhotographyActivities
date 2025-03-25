@@ -1,2 +1,2 @@
 # SZ-PhotographyActivities
-深圳摄影活动
+深圳摄影活动归档及更新
